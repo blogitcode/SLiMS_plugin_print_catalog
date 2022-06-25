@@ -1,1 +1,1 @@
-# SLiMS_plugin_print_catalog
+# Plugin Print Item Catalog SLiMS
