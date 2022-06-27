@@ -8,3 +8,5 @@ This plugin print item catalog SLiMS free.
 - Website: https://www.blogitcode.com/search/label/SLiMS
 - Email: blogitcodes@gmail.com
 - Buy Me a Coffee: https://paypal.me/huudinh
+
+<a href="https://ibb.co/yFVYYrb](https://www.blogitcode.com/search/label/SLiMS"><img src="https://i.ibb.co/TMrbbsF/in-muc-luc.jpg" alt="in-muc-luc" border="0"></a>
